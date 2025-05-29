@@ -3,5 +3,4 @@
 ### H E L L O   S H I V A M
 
 
-
-![Kya Kar Raha Hai](https://media.tenor.com/cs9e4Z1cdqYAAAAC/kya-kar-raha-hai.gif)
+![KYA RE](https://tenor.com/eFmUW6iTG9N.gif)
